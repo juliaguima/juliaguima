@@ -1,4 +1,4 @@
-## Oláá eu sou a Rafaella Júlia Franco!
+## Oláá eu sou a Júlia Franco!
 
 <div align="center">
   <a href="https://github.com/juliaguima">
